@@ -10,6 +10,8 @@ feel free to get in touch if you would like to connect. 🔥
 ### 📬 Connect with me
 
 - 📧 [Email](mailto:hi@lennie.de)  
-- 💬 [WhatsApp](https://wa.me/491759928165)  
+- 💬 [WhatsApp Web](https://web.whatsapp.com/send?phone=491759928165)  
+- 📲 [WhatsApp APP](https://wa.me/491759928165)  
 - 📸 [Instagram](https://www.instagram.com/lennartoertzen/)  
 - 💼 [LinkedIn](https://www.linkedin.com/in/oertzen)  
+- 🕸️ [lennie.de](https://lennie.de) 
